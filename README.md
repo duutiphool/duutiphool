@@ -1,4 +1,5 @@
 ### Hi there 👋
+My name duuti-phool means two-flowers in English. I like reading high fantasy ( a bit too much). And I adore dinosaurs!
 
 <!--
 **duutiphool/duutiphool** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
